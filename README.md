@@ -1,4 +1,4 @@
-[[Link vidio presentasi](https://drive.google.com/drive/folders/1InBYQ8y2gcWteOCFmMpZprZKDY4QMf2X?usp=sharing)](#)
+[Link vidio presentasi](https://drive.google.com/drive/folders/1InBYQ8y2gcWteOCFmMpZprZKDY4QMf2X?usp=sharing)
 
 ## Anggota Kelompok Peaky Blinders
 - **Aryasatya Wicaksana** - 231401114
